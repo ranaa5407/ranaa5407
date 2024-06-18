@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Aman Kumar
+- 👋 Hi, I’m randbaaj.
 - 👀 I’m interested in fucking people in the jass.
 - 🌱 I’m currently learning fuck people without letting em know.
 - 💞️ I’m looking to collaborate with multiple pussies at the same time.
